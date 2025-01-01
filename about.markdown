@@ -10,6 +10,6 @@ When I started, I could not swim for more than 2 pool lengths without running ou
 
 In little over one year, I completed a swim marathon (10 km), I completed my first half Ironman Triathlon, I improved my Marathon time down to 4h 1m, and I completed my first 100 Km run.
 
-In the process, I learnt a lot, and I also noticed that the majority of the training information I could find was mainly targeted at the average athlete trying to improve, rather than a total beginner.
+In the process, I learnt a lot, and I also noticed that a lot of the training information I could find was targeted at the average athlete trying to improve, rather than a total beginner.
 
 In particular, I get often asked by colleagues and friends about how to get started in some of these sports. Hence, in this blog I'll try to focus on information that would have helped me as a total newbie.
